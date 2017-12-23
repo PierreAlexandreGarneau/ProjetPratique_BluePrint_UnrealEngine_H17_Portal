@@ -20,3 +20,9 @@ The Portal consists primarily of a series of puzzles that must be solved by tele
 
 The aim of the game is for the player find the way through different chamber. In order to locate their precious Cake, 
 the players have to interact with the portal to reach their gold in the game.
+
+
+
+YOU CAN DOWNLOAD THE .EXE ON MY GOOGLE DRIVE:
+
+https://drive.google.com/uc?id=120H18VFTBest8Z03SCZ9uiSjhbrbKKpU&export=download
